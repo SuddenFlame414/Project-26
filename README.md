@@ -1,1 +1,1 @@
-# Project-26
+# This recipie is for teachers only
